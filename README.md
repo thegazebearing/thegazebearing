@@ -14,7 +14,7 @@
 <p align="center">
   $\textsf{{\color{#4EA142}🦴⠀ ー⠀ 𝘊𝘢𝘱'𝘯 𝘓𝘪𝘮𝘦𝘸𝘪𝘳𝘦⠀⠀⠀𓂃 ⠀⠀⠀any prns}}$</br>
   $\textsf{{\color{#7DD971}＃⠀ 18⠀y.o⠀⠀︵︵⠀⠀sys⠀.⠀asd⠀.⠀always⠀𝘪𝘸𝘤}}$</br>
-  $\textsf{{\color{#A1E396}꒰⠀ selfshipper⠀⠀𓂃⠀⠀taken ⠀♡⠀⠀}}$ <a href="https://github.com/Ten-Mou">awesomedroid</a></br>
+  $\textsf{{\color{#A1E396}꒰⠀ selfshipper⠀⠀𓂃⠀⠀taken ⠀♡⠀⠀}}$ <a href="https://github.com/inthecaldera">blinky</a></br>
   <a href="https://limewiire.straw.page/">strawpge</a>⠀⠀.⠀⠀<a href="https://x.com/CapnLimewire">twt</a>⠀⠀.⠀⠀<a href="https://pacman.atabook.org/">sign ata</a></br></br>
   <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/0ebb2c66-a0c0-4342-90ee-baed55be2375" />
 
@@ -50,4 +50,4 @@
 
 </p>
 <img height="200" alt="Image" src="https://github.com/user-attachments/assets/20e16a3c-890a-4e56-b88f-17c985beb2d3" title="🍋‍🟩 graphic forged by @𝗹𝗹𝗶𝗺𝗲𝘄𝗶𝗿𝗲 . 𝙉𝙊 𝙋𝙄𝙍𝘼𝙏𝙄𝙉' !"/>
-<sup><sub>𝘱𝘶𝘵 𝘵𝘰𝘨𝘦𝘵𝘩𝘦𝘳 𝘣𝘺 𝘛𝘦𝘯-𝘔𝘰𝘶</sub></sup>
+<sup><sub>𝘱𝘶𝘵 𝘵𝘰𝘨𝘦𝘵𝘩𝘦𝘳 𝘣𝘺 𝘪𝘯𝘵𝘩𝘦𝘤𝘢𝘭𝘥𝘦𝘳𝘢</sub></sup>
