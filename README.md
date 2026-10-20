@@ -15,7 +15,7 @@
   $\textsf{{\color{#2333C8}⛓️⠀ ー⠀ 𝘋𝘰𝘯 / 𝘎𝘳𝘦𝘨𝘰𝘳⠀⠀⠀𓂃 ⠀⠀⠀they}}$</br>
   $\textsf{{\color{#4254F5}＃⠀ 18⠀y.o⠀⠀︵︵⠀⠀sys⠀.⠀asd⠀.⠀always⠀𝘪𝘸𝘤}}$</br>
   $\textsf{{\color{#6375FF}꒰⠀ selfshipper⠀⠀𓂃⠀⠀taken ⠀by ⠀}}$ <a href="https://github.com/inthecaldera">blinky ♡</a></br>
-  <a href="https://limewiire.straw.page/">strawpge</a>⠀⠀.⠀⠀<a href="https://x.com/CapnLimewire">twt</a>⠀⠀.⠀⠀<a href="https://pacman.atabook.org/">sign ata</a></br></br>
+  <a href="https://limewiire.straw.page/">strawpge</a>⠀⠀.⠀⠀<a href="https://x.com/tthegazebearing">twt</a>⠀⠀.⠀⠀<a href="https://pacman.atabook.org/">sign ata</a></br></br>
 
 <img width="98" height="55" alt="Image" src="https://github.com/user-attachments/assets/f7a4328d-b894-470a-b527-6a227f158401" />
 
